@@ -1,7 +1,8 @@
 ## Hi, I am Krish ✨
 
-🧠 Computer Science student <br/>
+🧠 Computer Science student at ASB <br/>
 💻 Cybersecurity Beginner <br/>
+👨‍💻 Excited to collaborate with dynamic teams <br/>
 
 
 
